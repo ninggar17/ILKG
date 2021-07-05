@@ -1,0 +1,1 @@
+Ini adalah file knowledge graph bidang hukum Inonesia
